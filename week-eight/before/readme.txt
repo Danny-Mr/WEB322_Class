@@ -12,3 +12,7 @@ Thank you for using my web.
 
 ALL RIGHTS AND COPY RIGHT BELOND TO ME/DANNY MODIR RAHMATI.
 ANY USE OF MY CODE WITHOUT MY PERMISSIONS WILL BE TOLERATED.
+
+Danny Modir Rahmati
+dmodir-rahmati@myseneca.ca
+182537217
